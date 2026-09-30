@@ -16,7 +16,7 @@ CODING->
 Tips for UUU->
 1) Limit Time per question, i spent a lot time on Paragraphs as 4 were provided with 5 sub-questions each. (wasted 22 mins here)
 2) HireMee is assesment partner for ITC and they don't have any time slots for each sections and you need to complete all 5 sections in 85 mins, unlike TCS assesmnets where every section has a time limit.
-3) Move fast and keep atleast 30 mins for Coding as you can't even cheat in last 5mins which others today did and failed haha! :))
+3) Move fast and keep atleast 30 mins for Coding as you can't even ***** in last 5mins which others today did and failed haha! :))
 
    Best of Luck:)
     
